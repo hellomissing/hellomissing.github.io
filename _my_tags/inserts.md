@@ -1,0 +1,4 @@
+---
+slug: inserts
+name: inserts
+---
