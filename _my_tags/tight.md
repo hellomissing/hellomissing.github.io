@@ -1,0 +1,4 @@
+---
+slug: tight
+name: tight
+---
