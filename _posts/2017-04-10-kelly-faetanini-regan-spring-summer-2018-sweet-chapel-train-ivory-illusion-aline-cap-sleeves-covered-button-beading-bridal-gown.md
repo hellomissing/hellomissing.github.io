@@ -1,0 +1,19 @@
+---
+layout: post
+date: '2017-04-10'
+title: "Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown"
+category: Kelly Faetanini Wedding Dresses
+tags: ["sweet","gown","bonny","button","ivory"]
+image: http://www.neoformal.com/25978-thickbox_default/kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.jpg
+---
+Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown
+
+On Sales: **$369.98**
+<a href="https://www.neoformal.com/en/kelly-faetanini-wedding-dresses-2014/8905-kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.neoformal.com/25978-thickbox_default/kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.jpg" alt="Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown 0" /></a>
+<a href="https://www.neoformal.com/en/kelly-faetanini-wedding-dresses-2014/8905-kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.neoformal.com/25981-thickbox_default/kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.jpg" alt="Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown 1" /></a>
+<a href="https://www.neoformal.com/en/kelly-faetanini-wedding-dresses-2014/8905-kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.neoformal.com/25980-thickbox_default/kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.jpg" alt="Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown 2" /></a>
+<a href="https://www.neoformal.com/en/kelly-faetanini-wedding-dresses-2014/8905-kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.neoformal.com/25979-thickbox_default/kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.jpg" alt="Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown 3" /></a>
+
+Buy it: [Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown](https://www.neoformal.com/en/kelly-faetanini-wedding-dresses-2014/8905-kelly-faetanini-regan-spring-summer-2018-sweet-chapel-train-ivory-illusion-aline-cap-sleeves-covered-button-beading-bridal-gown.html "Kelly Faetanini Regan Spring/Summer 2018 Sweet Chapel Train Ivory Illusion Aline Cap Sleeves Covered Button Beading Bridal Gown")
+
+View more: [Kelly Faetanini Wedding Dresses](https://www.neoformal.com/en/113-kelly-faetanini-wedding-dresses-2014 "Kelly Faetanini Wedding Dresses")
