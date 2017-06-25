@@ -3,7 +3,7 @@ layout: post
 date: '2016-12-31'
 title: "Cheap 2014 New Style Long Designer Fashion Maggie Sottero Wedding Dresses Velma"
 category: Maggie Sottero Wedding Dresses
-tags: ["gowns","discount","evening","maggie","formal"]
+tags: ["dresses","discount","wedding","cheap","gowns"]
 image: http://www.neoformal.com/22709-thickbox_default/cheap-2014-new-style-long-designer-fashion-maggie-sottero-wedding-dresses-velma.jpg
 ---
 Cheap 2014 New Style Long Designer Fashion Maggie Sottero Wedding Dresses Velma
