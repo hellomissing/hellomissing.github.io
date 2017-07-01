@@ -1,0 +1,4 @@
+---
+slug: gamma
+name: gamma
+---
